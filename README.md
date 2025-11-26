@@ -1,1 +1,1 @@
-# hizlisoftmutfak-privacy-policy-
+# HızlıSoft Mutfak Güvenlik Politikası
